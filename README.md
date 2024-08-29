@@ -1,1 +1,2 @@
-# CIS106_FA24
+Dylan Justin Gueco
+gd68390@mail.harpercollege.edu
